@@ -73,7 +73,7 @@
 
 ## 📫 Contact
 
-- Telegram: https://t.me/yourusername
+- Telegram: https://t.me/zxlvvvdd
 - GitHub: https://github.com/zayriddinovv
 
 ---
